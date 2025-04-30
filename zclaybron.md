@@ -1,4 +1,4 @@
-Zakiyyah Claybron
-The Collins Academy STEAM High School
+Zakiyyah Claybron Dale Loggins
+The Collins Academy STEAM High School Gwendolyn Brooks College Prep
 
-Strawberry Yogurt
+Strawberry Yogurt Potato Chips
