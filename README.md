@@ -1,2 +1,4 @@
-# 1strepo
-My First Code Repo
+Marsuelle Marasas
+Tilden High School
+
+Tacos
