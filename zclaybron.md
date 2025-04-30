@@ -1,4 +1,4 @@
-Zakiyyah Claybron
-The Collins Academy STEAM High School
+Zakiyyah Claybron Patrick Desire 
+The Collins Academy STEAM High School Chicago High School for Agricultural Sciences 
 
-Strawberry Yogurt
+Strawberry Yogurt Trail Mix 
